@@ -3,4 +3,4 @@
 - 🌴 I’m looking to collaborate on a project that involves black art 
 - 💌 How to reach me: jasmine_kamara@brown.edu
 - 🌺 Pronouns: she / her / hers
-- 🧝🏿‍♀️ Fun fact: I performed in the Rose Parade before!
+- 🧝🏿‍♀️ Fun fact: I performed in the 2020 Rose Parade!
